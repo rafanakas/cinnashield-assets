@@ -1,0 +1,1 @@
+# cinnashield-assets
